@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Here we come for some tech discussions.
 
-Maybe say a some things about yourself.
+Help each other with problems and solve challenges and problems.
 
-Or maybe what you plan to blog about.
+Come join this free space and let us enjoy the journey together.
